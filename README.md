@@ -23,7 +23,7 @@ Blockchain enthusiast, leader, and innovator with a passion for harnessing the p
 
 📫 How to reach me:
 
-* Email: [rowangreysonreed@companyname.com](mailto:rowangreysonreed@companyname.com)
+* Email: [rowangreysonreed@evolvevoting.com](mailto:rowangreysonreed@evolvevoting.com)
 * LinkedIn: linkedin.com/in/rowangreysonreed
 * Twitter: twitter.com/rowangreysonreed
 
