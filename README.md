@@ -1,4 +1,4 @@
-**🔒 Blockchain Visionary | CEO @ [Company Name]**
+**🔒 Blockchain Visionary | CEO @ USDT Property**
 
 👋 Hi, I'm **Rowan Greyson Reed**
 Blockchain enthusiast, leader, and innovator with a passion for harnessing the power of decentralized technologies to shape the future of voting systems.
